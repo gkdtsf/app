@@ -16,4 +16,6 @@
 * V2ray官方地址：https://github.com/v2ray/v2ray-core
 
 
-# 付费订阅地址：[https://xn--4gq62f52gdss.ink/#/register?code=FWmwp14h](https://xn--4gq62f52gdss.ink/#/register?code=FWmwp14h)
+## 付费订阅地址：
+一元机场：
+[https://xn--4gq62f52gdss.ink/#/register?code=FWmwp14h](https://xn--4gq62f52gdss.ink/#/register?code=FWmwp14h)
